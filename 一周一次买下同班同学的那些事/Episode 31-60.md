@@ -24,11 +24,8 @@
 
 <div align="left">-----------------------</div><br />
 
-<div align="left">看到这里的时候我脑子里就浮现了一个RPG游戏画面。</div><div align="left">仙台的道具栏：重要道具：宫城的橡皮擦</div><br />
+<div align="left">看到这里的时候我脑子里就浮现了一个RPG游戏画面。</div><div align="left">仙台的道具栏：重要道具：宫城的橡皮擦</div>
 
-<br />
-
-<br />
 # 是宫城她错了
 
 ## Episode 32
